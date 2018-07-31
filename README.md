@@ -1,1 +1,1 @@
-# Zero-Ulitmate-Wallet
+# Zero-Ultimate-Wallet
